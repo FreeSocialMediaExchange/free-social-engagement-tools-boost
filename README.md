@@ -9,15 +9,21 @@ These platforms are based on **real person interaction**, where users engage wit
 
 ## 🧩 Curated Platforms (Random Order)
 
-### ⭐ **Like4Like**
-[Visit Like4Like](https://www.like4like.org/?ref=play2earn)  
-A popular engagement-exchange network where users interact with real profiles to earn credits and redeem them across multiple major social platforms. Known for its simplicity and fast credit earning system.
+### ⭐ **FolllLike**
+[Visit FolllLike](http://folllike.com/?19384926)  
+Earn points by liking posts, watching videos, or subscribing to channels, then trade your points for your own social growth. Clean UI and quick credit turnover.
 
 ---
 
 ### ⭐ **LiveTraffic**
 [Visit LiveTraffic](https://livetraffic.net/login?refer=119334)  
 Focuses on website visits and social interactions. Great for creators wanting additional traffic or visibility. Earn credits through real browsing and social actions.
+
+---
+
+### ⭐ **Like4Like**
+[Visit Like4Like](https://www.like4like.org/?ref=play2earn)  
+A popular engagement-exchange network where users interact with real profiles to earn credits and redeem them across multiple major social platforms. Known for its simplicity and fast credit earning system.
 
 ---
 
@@ -30,12 +36,6 @@ Long-established social rewards platform letting users follow, like, and subscri
 ### ⭐ **FollowLike Info**
 [Visit FollowLike Info](https://www.followlike.info/?r=19384926)  
 Flexible multi-network growth site where you gain exposure by sharing engagement with others. Very handy for creators building across several social apps.
-
----
-
-### ⭐ **FolllLike**
-[Visit FolllLike](http://folllike.com/?19384926)  
-Earn points by liking posts, watching videos, or subscribing to channels, then trade your points for your own social growth. Clean UI and quick credit turnover.
 
 ---
 
